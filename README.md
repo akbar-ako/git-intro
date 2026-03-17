@@ -1,0 +1,1 @@
+Git və GitHub öyrənirəm
